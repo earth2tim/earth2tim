@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @earth2tim
 - 👀 I’m interested in tts aps for Android 
-- 🌱 I’m currently learning how to write a better resume 
-- 💞️ I’m looking to collaborate on anything of interest 
+- 🌱 I’m currently trying to download yt files
+- 💞️ I’m looking to collaborate local area get togethers
 - 📫 How to reach me fathertim12912@gmail.com
 - 😄 Pronouns: I have male chromosomes
 - ⚡ Fun fact: I was a junior college Kite Flying Champion 🏆 
